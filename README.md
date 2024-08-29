@@ -1,4 +1,4 @@
-LITERALLY A 10X DEVELOPER SUCH A GOOD DEVELOPER LEET CODE, SYSTEMS, 2xDP, ALGORITHMIC KNOWLEDGE FOR EXAMPLE TRAVELLING SALESMAN- EVERYTHING
+creating differently
 
 <!--
 **a-creation/a-creation** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
